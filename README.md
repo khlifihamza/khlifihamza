@@ -100,7 +100,6 @@ I'm always open to interesting conversations and collaboration opportunities. Wh
 
 **📧 khllifihamza66@gmail.com**  
 **💼 [LinkedIn](https://linkedin.com/in/hamza-khlifi)**  
-**🐙 [GitHub](https://github.com/khlifihamza)**  
 
 ---
 
